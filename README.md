@@ -1,3 +1,3 @@
-GYUS IM CRINE WHY IS IT SO HARD TO ADD A IMAGE ON GITHUB README :sob:, anyway heres captain red :3
+oooooo i love A ReGect arg vids ooooo 👀
 
-<img width="735" height="484" alt="Image" src="https://github.com/user-attachments/assets/9eee5597-5e98-4b92-a420-8b0276853c1e" />
+<img width="735" height="529" alt="Image" src="https://github.com/user-attachments/assets/ae4b0ac4-c8f7-40a0-9bd7-1d02e9f60566" />
